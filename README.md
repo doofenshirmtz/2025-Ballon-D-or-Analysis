@@ -1,9 +1,9 @@
-My goat raphinha was the most disrespected footballer of 2025
+Raphinha was the most disrespected footballer of 2025
 
 Heres an youtube video talking about it as well
 https://www.youtube.com/watch?v=Rja6ILngQj0
 
-anyway here my basic ass cpu used random forrest to dunk on them dumb journalists and prove raphina deserved to win
+So I decided to use random forrests on my basic hardware and prove that even it thinks that Raphinha deserved to win
 
 <img width="535" height="115" alt="image" src="https://github.com/user-attachments/assets/8091456e-ae96-4707-99b7-2a943859da0e" />
 
